@@ -1,1 +1,1 @@
-# Camera-User-Manualsss
+# Camera-User-Manual
